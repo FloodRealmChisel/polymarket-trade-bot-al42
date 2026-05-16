@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with smart Polymarket Algorithm | volume-analysis + API-integration, the #1 algorithm. Includes volume-analysis and API-integration for a smoother
 
 
 
